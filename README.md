@@ -1,4 +1,4 @@
-- Hi, I’m @DarthWalkerr
+- Hi, I'm Jay 👋🏽
 - I’m interested in coding and I’m currently learning Frontend development 
 - I’m looking to collaborate on projects that could help me better my experience and become a professional developer 
 - Reach out to me at : jaywolfe02@gmail.com 📩
